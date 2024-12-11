@@ -21,7 +21,7 @@ Here are some ideas to get you started:
 I'm an avid learner and always hungry to acquire new skills and techniques
 
 ## My Strengths
-I would say my biggest strength is the ability to remain curious and absorb new knowledge. I am able to apply my wide knowledge or various domains in the Information Technology space to easily translate complex technical comncepts and present them in a format that is easily understandable. 
+My biggest strength is the ability to remain curious and absorb new knowledge. I am able to apply my wide knowledge or various domains in the Information Technology space to easily translate complex technical comncepts and present them in a format that is easily understandable. 
 I have excellent written and verbal communication skills.
 
 ## My Values
